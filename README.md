@@ -13,6 +13,6 @@ Meu nome é Leonardo Giacobo Lopes
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
- ![](https://tenor.com/pt-BR/view/oh-god-i-love-technology-zach-grenier-the-good-fight-i-love-modern-technology-technology-impresses-me-gif-22670180)
+ ![](https://tenor.com/pt-BR/view/itsbrizz-pps-pro-pod-show-gif-18464921)
 
 
