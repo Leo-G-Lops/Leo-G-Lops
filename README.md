@@ -13,6 +13,6 @@ Meu nome é Leonardo Giacobo Lopes
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
- ![](https://tenor.com/pt-BR/view/itsbrizz-pps-pro-pod-show-gif-18464921)
+ ![](<div class="tenor-gif-embed" data-postid="18464921" data-share-method="host" data-aspect-ratio="1.69312" data-width="100%"><a href="https://tenor.com/view/itsbrizz-pps-pro-pod-show-gif-18464921">Itsbrizz Pps GIF</a>from <a href="https://tenor.com/search/itsbrizz-gifs">Itsbrizz GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 
