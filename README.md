@@ -13,5 +13,5 @@ Meu nome é Leonardo Giacobo Lopes
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![](https://tenor.com/pt-BR/view/i-love-technology-jauwad-family-feud-canada-tech-enthusiast-im-a-tech-guy-gif-27346941)
+![](https://tenor.com/pt-BR/view/i-love-technology-jauwad-family-feud-canada-tech-enthusiast-im-a-tech-guy-gif)
 
