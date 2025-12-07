@@ -13,6 +13,6 @@ Meu nome é Leonardo Giacobo Lopes
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/1e36f2d9-dfb5-40c0-96ff-8d08822e4554" />
+<div class="tenor-gif-embed" data-postid="27346941" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/i-love-technology-jauwad-family-feud-canada-tech-enthusiast-im-a-tech-guy-gif-27346941">I Love Technology Jauwad Sticker</a>from <a href="https://tenor.com/search/i+love+technology-stickers">I Love Technology Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 
