@@ -5,14 +5,11 @@
 Meu nome é Leonardo Giacobo Lopes
 
 - Estou a procura de trabalho
-- Estou atualmente cursando Técnico em Desenvolvimento de Sistemas
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- Tenho formação na área da saúde no curso de Biomedicina 
+- Atualmente cursando técnico em Desenvolvimento de Sistemas
 
-<div class="tenor-gif-embed" data-postid="27346941" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/i-love-technology-jauwad-family-feud-canada-tech-enthusiast-im-a-tech-guy-gif-27346941">I Love Technology Jauwad Sticker</a>from <a href="https://tenor.com/search/i+love+technology-stickers">I Love Technology Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
+
+
 
 
