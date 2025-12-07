@@ -13,6 +13,6 @@ Meu nome é Leonardo Giacobo Lopes
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![](<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/1e36f2d9-dfb5-40c0-96ff-8d08822e4554" />
-)
+<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/1e36f2d9-dfb5-40c0-96ff-8d08822e4554" />
+
 
