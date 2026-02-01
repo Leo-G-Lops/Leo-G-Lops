@@ -13,7 +13,7 @@ Meu nome é Leonardo Giacobo Lopes
 
 
 
-![](i-love-technology-jauwad.gif)
+![width= "50%"](i-love-technology-jauwad.gif)
 
 
 
