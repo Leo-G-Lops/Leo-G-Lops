@@ -14,7 +14,7 @@ Meu nome é Leonardo Giacobo Lopes
 
 
 
-<img src="i-love-technology-jauwad.gif" alt="Descrição" width="50%" />
+<img src="i-love-technology-jauwad.gif" alt="Descrição" width="500" />
 
 
 
